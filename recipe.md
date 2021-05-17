@@ -1,0 +1,1 @@
+Take a potato , cut the potato in finger-shape , put these fingers in cold water , put the fingers on a cloth for 10 minutes ,put them in a bowl and add salt and mix it , put these fingers in air fryer for 17 minutes at a temperature of 180 degree Celcius , then place them in a bowl with your mayonise and then enjoy!!!.
